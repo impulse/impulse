@@ -1,4 +1,4 @@
-### Hi there 👋
+『时间，每天得到的都是二十四小时，可是一天的时间给勤勉的人带来智慧和力量，给懒散的人只留下一片悔恨』 – 鲁迅
 
 <!--
 **impulse/impulse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
